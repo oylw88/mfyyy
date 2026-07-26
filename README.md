@@ -8,7 +8,7 @@ https://ghfast.top/raw.githubusercontent.com/oylw88/mfyyy/blob/main/yyxzq_v6.js
  
 https://ghfast.top/raw.githubusercontent.com/oylw88/mfyyy/blob/main/cqSVIP_v1.js
 
-———————————————————————————————————————
+——————————————————————————————————————————
 
 https://gh-proxy.org/raw.githubusercontent.com/oylw88/mfyyy/blob/main/lx-V1.js
 
